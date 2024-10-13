@@ -57,7 +57,9 @@ Recommendation: Prioritize and improve service quality and efficiency on these h
 For inquiries, feedback, or collaboration opportunities, feel free to reach out:
 
 Mostafa Gasser
+
 Email:mostgasser1@gmail.com
+
 Location: Cairo, Egypt
 
-Let’s work together to turn your data into powerful insights! 🚀
+*Open to freelance opportunities and collaborations!*
